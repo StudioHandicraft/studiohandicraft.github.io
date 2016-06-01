@@ -1,1 +1,1 @@
-# handicraft.github.com
+# studiohandicraft.github.io
